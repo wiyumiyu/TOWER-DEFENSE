@@ -1,3 +1,2 @@
 # TOWER-DEFENSE
-![TowerDefense_IAvance_MarianaTorres(2)](https://github.com/user-attachments/assets/b2e05b41-57f3-4e41-81e2-1cbda7e7703a)
-
+![TowerDefense_IAvance_MarianaTorres(3)](https://github.com/user-attachments/assets/e6b0595a-f2ca-4d37-aa56-daf4bda30069)
